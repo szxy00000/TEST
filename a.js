@@ -1,2 +1,7 @@
-<<<<<<< HEAD
-asdasd
+12eaedsaasd
+asda
+da
+dad
+ad
+ad
+ads
